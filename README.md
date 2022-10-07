@@ -1,5 +1,5 @@
 - 👋 Hi fren
-- 👀 i do make code ser
+- 👀 i do make code, ser
 - 🌱 ser, i do java & python
 - 📫 you can text me here if you want, fren!
 <!---
